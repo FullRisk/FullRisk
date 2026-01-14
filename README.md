@@ -4,7 +4,6 @@
 - 💞️ I’m looking to collaborate with bread1405
 - 📫 How to reach /
 - 😄 Pronouns: he/him just the standart ( i dont need this new stuff )
-- ⚡ Fun fact: i like femboys (ITS A JOKE STOP MESSAGING)
 
 <!---
 FullRisk/FullRisk is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
